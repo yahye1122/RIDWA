@@ -1,0 +1,2 @@
+# RIDWA
+about education 
